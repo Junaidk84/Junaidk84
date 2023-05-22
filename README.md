@@ -7,5 +7,6 @@
 - 📫 How to reach me: kubernetescaptainj@gmail.com
 - 😄 Pronouns: Captain J
 - LinkedIn: https://www.linkedin.com/in/captain-jk-315727264/
+- Blogs : Upcoming
  
 
